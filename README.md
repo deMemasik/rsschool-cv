@@ -1,1 +1,1 @@
-https://deMemasik.github.io/rsschool-cv/cv
+https://deMemasik.github.io/rsschool-cv/
